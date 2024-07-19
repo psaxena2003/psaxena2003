@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **priyanshi200319saxena@gmail.com**
 
-- ⚡ I believe in: **"Do great work, get great sleep!"**
+- ⚡ I believe in: **"Doing great work, getting great sleep!"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
